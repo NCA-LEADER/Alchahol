@@ -1,2 +1,0 @@
-# Alchahol
-Too much/ Overcharged
